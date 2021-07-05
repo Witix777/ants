@@ -1,2 +1,2 @@
 # ants
-https://haijo7.github.io/ants/
+https://witix777.github.io/ants
